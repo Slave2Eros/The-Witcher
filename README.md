@@ -121,16 +121,18 @@ By establishing the Asena, you are deemed to have accepted these responsibilitie
 
 ## Lord Eros 
                      
-  Base, Bug Fixed Modifiying  as   public | Bug Fixes, Modules                   
+  The Creator , Base Designer , bug Fixes , Tester .
+                     
   [![Jackz Ser](https://github.com/Jackz-ser.png?size=100)](https://github.com/Jackz-ser)
 
 ## Jackz Ser
 
-Base, Bug Fixed Modifiying  as   public | Bug Fixes, Modules
+Tester, Bug Fixed Modifiying  as   public | Bug Fixes.
 
   [![Troks]
 
   
+  Editor , Bug Fixes , Bug Fixed Modifiying  as   public                   
 
   </div>
 
